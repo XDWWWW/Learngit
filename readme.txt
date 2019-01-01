@@ -1,1 +1,1 @@
-i am a new people.
+although i am a green bird, i am confidence.
